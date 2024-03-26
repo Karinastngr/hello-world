@@ -6,3 +6,4 @@ I'm a student of faculty of foreign language. I'm 19 y.o and I'am also tutor of 
 Дввс Інформаційні технології в освіті та бізнесі
 26.03.2024
 
+Karina is a top tutor bro
